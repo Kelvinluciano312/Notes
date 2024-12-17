@@ -1,4 +1,4 @@
-## <a href="index.md" >Noteboo Virtuals</a>
+## <a href="../index.md" >Notebook Virtuals</a>
 
 
 # Receita da Coxinha  

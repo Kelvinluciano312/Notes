@@ -5,7 +5,7 @@
 
 ### Bottom 
 - 2 Jeans (Branco e Preto)
-- 2 Calcas moeletom (Sem Grudar Pelinho) 
+- 2 Calcas moeletom (Verde e Caqui)
 - 3 Bermudas de sair 
 - 3 Bermudas de ficar em casa (Preta / Branca / Rosa)
 
